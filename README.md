@@ -1,2 +1,4 @@
 # news1
-so and
+so and on~~
+everyday update something！
+
